@@ -1,1 +1,1 @@
-My first readme
+Today it's Friday Halla!!
